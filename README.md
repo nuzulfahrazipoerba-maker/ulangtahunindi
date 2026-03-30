@@ -1,2 +1,1 @@
 # ulangtahunindi
-asaindiaknia
